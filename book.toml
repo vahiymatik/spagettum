@@ -1,0 +1,10 @@
+[book]
+authors = ["vahiymatik", "revolade"]
+language = "tr"
+multilingual = false
+src = "src"
+title = "Kitab-ı Spagettum"
+
+[output.html]
+default-theme = "rust"
+preferred-dark-theme = "rust"
