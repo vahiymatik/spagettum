@@ -28,3 +28,7 @@ Yüce uçan spagetti canavarından gelen daha kitaba eklenmemiş vahiyler.
   çalışacak. Yer gök domates sosu kaplanacak! Volkanlar kaynayan domatesler
   saçacak! Dağların üstündeki kar parmesan olacak! Bulutlar güneşi kapayacak,
   spagettiden duvar örecek!
+- Biz size sozsuz makarnayı haram kıldık, şüphesiz çeşitli sodlarda nice
+  faydalar (vitaminler) bulunmaktadır.
+- Hiç görmedin mi spagettiyi bozarak haşlayanları, işte onlar ahiret gününde
+  hesaba çekilecektir, yaptıkları kendilerine geri dönecektir.
