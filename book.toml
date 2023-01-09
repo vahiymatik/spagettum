@@ -8,3 +8,4 @@ title = "Kitab-ı Spagettum"
 [output.html]
 default-theme = "rust"
 preferred-dark-theme = "rust"
+git-repository-url = "https://github.com/vahiymatik/spagettum"
