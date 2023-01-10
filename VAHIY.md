@@ -32,3 +32,15 @@ Yüce uçan spagetti canavarından gelen daha kitaba eklenmemiş vahiyler.
   faydalar (vitaminler) bulunmaktadır.
 - Hiç görmedin mi spagettiyi bozarak haşlayanları, işte onlar ahiret gününde
   hesaba çekilecektir, yaptıkları kendilerine geri dönecektir.
+- Biz şüphesiz ki spagettiyi bozanları da uyarmıştık. Onlara bir keçi bir de
+  inek adamıştık bir elçiyle. Onlar (yoldan çıkmışlar) bunu sahte, insan
+  kurgusu birer senaryo sanmışlardı. Biz de onları spagetti yemekten mahrum
+  bıraktık. Bu milletin vatanını borç içinde bıraktık. Şüphesiz ki onları
+  büyük azap beklemektedir.
+- Şüphesiz ki onlar, belli bir emel için pilav yemek zorundadırlar. Biz onlara
+  pilavın yanında tavuğu da helal kıldık.
+- Bazıları, kafalarından ayet uydurabileceğini zannedip bu yollara
+  başvururlar. Halbuki onları büyük azabın beklediğini bilmezler. İnsanlık güç
+  peşinde kendini mahvederken tek güç sahibinin yüce yaratıcı Spagettinus
+  olduğu ayrımında değildirler. O gün geldiğinde, bozdukları spagettiler gibi
+  bozulacaklardır.
